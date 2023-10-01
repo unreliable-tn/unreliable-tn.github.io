@@ -13,3 +13,8 @@ Disclaimer: this repo is a clone of https://github.com/varadbhogayata/varadbhoga
 ![Screenshot 2023-09-29 at 03 33 52](https://github.com/unreliable-tn/unreliable-tn.github.io/assets/82098467/d2dbef4a-557f-431e-aea2-cc4e66cd5c29)
 ![Screenshot 2023-09-29 at 03 33 48](https://github.com/unreliable-tn/unreliable-tn.github.io/assets/82098467/d7bf66f4-a5e9-4b5c-bab2-4e8bbdbd6538)
 ![Screenshot 2023-09-29 at 03 33 42](https://github.com/unreliable-tn/unreliable-tn.github.io/assets/82098467/c0ca7bb7-fb69-459e-9372-4ba4f01cbf48)
+##
+# ** Activity 3 **
+![Screenshot 2023-10-01 at 16 47 43](https://github.com/unreliable-tn/unreliable-tn.github.io/assets/82098467/7aedf6b4-d04d-4d65-9d36-72f3ff21040f)
+![Screenshot 2023-10-01 at 16 46 16](https://github.com/unreliable-tn/unreliable-tn.github.io/assets/82098467/de8ced6d-44a5-41f9-bed3-bb2693293120)
+![Screenshot 2023-10-01 at 16 46 31](https://github.com/unreliable-tn/unreliable-tn.github.io/assets/82098467/151d9546-525e-47d6-8306-8ee8d7e7a8c8)
